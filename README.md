@@ -1,0 +1,1 @@
+# spiritwish-hack-cheats-blue-diamonds
